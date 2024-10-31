@@ -1,4 +1,4 @@
-# Modified-Hex
+# Modified-Hex AI
 
 **Code available upon request**
 
